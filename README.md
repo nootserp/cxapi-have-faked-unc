@@ -72,4 +72,4 @@ Tell about it everyone on cloudy discord server chat and send this github link
 
 
 
-Make sure to start this repo :>
+# MAKE SURE TO STAR THE REPO ⭐
